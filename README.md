@@ -1,1 +1,0 @@
-# andriikyrstiuk.github.io
